@@ -1,0 +1,2 @@
+# tuhan-simasumasu
+yestoya
